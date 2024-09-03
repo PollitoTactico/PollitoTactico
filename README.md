@@ -22,18 +22,20 @@
 ![](https://github-contributor-stats.vercel.app/api?username=PollitoTactico&limit=5&theme=dark&combine_all_yearly_contributions=true)
 
 ---
-[![](https://visitcount.itsvg.in/api?id=PollitoTactico&icon=0&color=0)](https://visitcount.itsvg.in)
 
 ## 😶‍🌫️ Esto si es musica pedazo de puta
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=arcv1ig6py82rz4e768l54aqj&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
 
 ## 🤬 VALORANT 
 
+A continucacion les presento mi segunda vida mi vicio asqueroso,repugnante, morbido, ratero, homosexual, amante, de, los, negros, de, tres, metros. Creo que perdi el punto...
+Estos son mis mains en el Valo no signidica que los juego bien pero aunque sean los juego. 🥵🥸
+
 Killjoy: La verdad solo me se un setup pero igual siguen cayendo en el mismo :v pinches hierros, bronces, platas (aqui me quede xd ), oro, platino y tu mamá
 
 ![image](https://github.com/user-attachments/assets/e4b8f95e-4f72-4248-a4c8-2bbade155538)
 
-Gekko: El gekko siempre tengo una partida buena y luego no la pongo ni una vez, es el agente perfecto pa mi porque siempre tengo la spike
+Gekko: El gekko siempre tengo una partida buena y luego no la pongo ni una vez, es el agente perfecto pa mi porque siempre tengo la spike, ademas es el unico con el que no ciego a mi equipo aun asi le ciego al Nico de vez en cuando.
 
 ![image](https://github.com/user-attachments/assets/b5685122-cdf1-43b6-bba4-bef6d0dc1982)
 
@@ -50,6 +52,8 @@ Gol D. Roger el rey de los piratas 👑 💀conquistó todo lo que el mundo 🌎
 
 ![image](https://github.com/user-attachments/assets/a496bf93-7f9f-4868-814c-fa6ca34888e7)
 
+##Una breve descripcion de mi persona...(entediste esa CUARTETO REFERENCIA!!!!?)
+Me describo como un ser antisocial, osea estoy en contra de las personas ojala se exitangan asi nadie me jode. Soy como un pito me encierro en mi prepucio y no salgo hasta que una minita me hable. 🐔
 
-
+[![](https://visitcount.itsvg.in/api?id=PollitoTactico&icon=0&color=0)](https://visitcount.itsvg.in)
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
