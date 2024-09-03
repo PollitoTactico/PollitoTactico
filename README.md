@@ -52,7 +52,7 @@ Gol D. Roger el rey de los piratas 👑 💀conquistó todo lo que el mundo 🌎
 
 ![image](https://github.com/user-attachments/assets/a496bf93-7f9f-4868-814c-fa6ca34888e7)
 
-##Una breve descripcion de mi persona...(entediste esa CUARTETO REFERENCIA!!!!?)
+## 🤓☝️ Una breve descripcion de mi persona...(entediste esa CUARTETO REFERENCIA!!!!?)
 Me describo como un ser antisocial, osea estoy en contra de las personas ojala se exitangan asi nadie me jode. Soy como un pito me encierro en mi prepucio y no salgo hasta que una minita me hable. 🐔
 
 [![](https://visitcount.itsvg.in/api?id=PollitoTactico&icon=0&color=0)](https://visitcount.itsvg.in)
