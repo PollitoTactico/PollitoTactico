@@ -30,12 +30,15 @@
 ## 🤬 VALORANT 
 
 Killjoy: La verdad solo me se un setup pero igual siguen cayendo en el mismo :v pinches hierros, bronces, platas (aqui me quede xd ), oro, platino y tu mamá
+
 ![image](https://github.com/user-attachments/assets/e4b8f95e-4f72-4248-a4c8-2bbade155538)
 
 Gekko: El gekko siempre tengo una partida buena y luego no la pongo ni una vez, es el agente perfecto pa mi porque siempre tengo la spike
+
 ![image](https://github.com/user-attachments/assets/b5685122-cdf1-43b6-bba4-bef6d0dc1982)
 
 Clove: Le juego medio desente la verdad no pongo humos pero con ella si pego... aveces
+
 ![image](https://github.com/user-attachments/assets/bf3cfc90-b524-4677-9ddc-43a44ed445ce)
 
 ## 🤯 One piece
@@ -43,6 +46,8 @@ One piece es la historia de un grupo de piratas que estan en busca del del del m
 Frase...
 Riqueza💰,fama🏆,poder💪.
 Gol D. Roger el rey de los piratas 👑 💀conquistó todo lo que el mundo 🌎 puede ofrecer,sus últimas palabras antes de morir hicieron que la gente corrieran 🏃🏻 hacia el oceano. ¿Quieren mi tesoro? Si lo quieren vayan y busquenlo todo lo que obtuve de este mundo lo encontran ahi. Los hombres se dirigieron a la gran ruta maritina para cumplir sus sueños. Y asi comenzo la GRAN ERA DE LOS PIRATAS *suena musica epica de opening " We Are "*
+
+
 ![image](https://github.com/user-attachments/assets/a496bf93-7f9f-4868-814c-fa6ca34888e7)
 
 
