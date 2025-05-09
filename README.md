@@ -1,5 +1,5 @@
 # 💫 Sobre Me(Solo cambie el About):
-🔭 Trabajo en COONECTA, me la paso rascándome las bolas 😘<br><br>👯 Nose, Mientras sea con el Gorky ese wey es god 👌<br><br>🤝 No necesito ayuda yo soy god 😒<br><br>🌱 Quiero aprender javascript, react y python as bien God para tener más chance de chamba<br>si no me dan chamba me pongo un chongo 🐛<br><br>💬 Pregunta lo que quieras excepto donde enterré el cuerpo de mi abuela <br><br>⚡Los pandas en cautiverio no saben reproducirse. Así que les ponen porn* de pandas
+🔭 Trabajo en COONECTA(mentira ya no trabajo,ahora soy mantenido), me la paso rascándome las bolas 😘<br><br>👯 Nose, Mientras sea con el Gorky ese wey es god 👌<br><br>🤝 No necesito ayuda yo soy god 😒<br><br>🌱 Quiero aprender javascript, react y python as bien God para tener más chance de chamba<br>si no me dan chamba me pongo un chongo 🐛<br><br>💬 Pregunta lo que quieras excepto donde enterré el cuerpo de mi abuela <br><br>⚡Los pandas en cautiverio no saben reproducirse. Así que les ponen porn* de pandas
 
 
 ## 🌐 Socials (No vean los tiktoks :3 ):
